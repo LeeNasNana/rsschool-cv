@@ -1,1 +1,1 @@
-https://LeeNasNana.github.io/rsschool-cv/cv
+https://leenasnana.github.io/rsschool-cv/cv
